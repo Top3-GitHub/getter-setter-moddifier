@@ -6,7 +6,7 @@
 
 ## Autor
 
-- [Mateusz Piotrowski](https://github.com/Top3-GitHub)
+- [Nie powiem :)](https://github.com/Top3-GitHub)
 
 
 ## FAQ
